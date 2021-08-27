@@ -26,3 +26,8 @@ fun facts:
 IM NOT A BIG FAN OF SCRATCH
 im bored
 i still have to go to spelling class lol
+uhmmmm
+im bored
+ugh
+uhhh
+can i do someting here?
